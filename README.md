@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **oerhaneness@gmail.com**
 
-- ⚡ Fun fact **i make music**
+- ⚡ Fun fact: **i make music**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
